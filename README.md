@@ -8,4 +8,7 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 [🦖Tải về 📺 TV360 cho iPhone ,iPad hệ điều hành ios](https://apps.apple.com/vn/app/tv360-truy%E1%BB%81n-h%C3%ACnh-tr%E1%BB%B1c-tuy%E1%BA%BFn/id1536071266?l=vi)
 
+[Hướng Dẫn Đăng Ký Và Sử Dụng](test)
+
+
      ©️2025 Vu Minh Ngoc
