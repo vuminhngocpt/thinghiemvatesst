@@ -1,8 +1,6 @@
-## Phòng Thí Nghiệm 
+## Miễn Phí 100%
 
-Bao Gồm Các Thử Nghiệm Của Tôi Và Cộng Đồng 
-
-Trang Web Chưa Có Thông Tin
+Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 
 
