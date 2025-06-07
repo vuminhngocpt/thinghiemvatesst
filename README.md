@@ -8,6 +8,10 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 [🦖Tải về 📺 TV360 cho iPhone ,iPad hệ điều hành ios](https://apps.apple.com/vn/app/tv360-truy%E1%BB%81n-h%C3%ACnh-tr%E1%BB%B1c-tuy%E1%BA%BFn/id1536071266?l=vi)
 
+[Tải về TV360 cho Andoid](https://play.google.com/store/apps/details?id=com.viettel.tv360&pcampaignid=web_share)
+
+
+
 [Hướng Dẫn Đăng Ký Và Sử Dụng](test)
 
 
