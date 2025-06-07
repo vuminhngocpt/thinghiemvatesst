@@ -10,6 +10,7 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 [Tải về TV360 cho Andoid](https://play.google.com/store/apps/details?id=com.viettel.tv360&pcampaignid=web_share)
 
+[Tải Về TV Andoid . SmartTV](https://play.google.com/store/apps/details?id=com.viettel.tv360.tv&pcampaignid=web_share)
 
 
 [Hướng Dẫn Đăng Ký Và Sử Dụng](test)
