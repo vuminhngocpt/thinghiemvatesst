@@ -17,4 +17,8 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 ### Lưu Trữ Đám Mây 
 
+> là ứng dụng và trang web bạn có thể đồng bộ dữ liệu lên để đảm bảo an toàn dữ liệu > không bị mất dữ liệu
+
+[Terabox Miễn Phí 1TB](t)
+> terabox cung cấp 1tb ~1000gb dữ liệu đám mây miễm phí 100% với điều kiện bạn phải xem quảng cáo > dung lượng tệp 3GB / tệp cho gói miễn phí tốc độ 4mb/s phù hợp lưu dữ liệu và ảnh rất tốt 
      ©️2025 Vu Minh Ngoc
