@@ -22,4 +22,6 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 [Terabox Miễn Phí 1TB](https://www.terabox.com)
 > terabox cung cấp 1tb ~1000gb dữ liệu đám mây miễm phí 100% với điều kiện bạn phải xem quảng cáo > dung lượng tệp 3GB / tệp cho gói miễn phí tốc độ 4mb/s phù hợp lưu dữ liệu và ảnh rất tốt
 
+### DNS Miễn Phí
+
      ©️2025 Vu Minh Ngoc
