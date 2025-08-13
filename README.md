@@ -24,4 +24,6 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
 ### DNS Miễn Phí
 
+   Địa chỉ IP của DNS Google Public
+
      ©️2025 Vu Minh Ngoc
