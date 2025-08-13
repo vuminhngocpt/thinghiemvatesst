@@ -26,4 +26,10 @@ Miễn phí khi sử dụng các thiết bị như PC, Điện thoai
 
    Địa chỉ IP của DNS Google Public
 
+#### iPv4
+    
+     8.8.8.8 
+     8.8.4.4
+
+     
      ©️2025 Vu Minh Ngoc
